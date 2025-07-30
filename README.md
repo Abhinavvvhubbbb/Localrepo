@@ -1,1 +1,1 @@
-Hey, i'm created bu Abhinav!
+Hey, i'm created by Abhinav!
